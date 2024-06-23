@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **Improving Skin Cancer Classification using GAN**
 
-- 🌱 I’m currently learning **Spring Java Framework**
+- 🌱 I’m currently learning **SpringBoot Java Framework**
 
 - 👯 I’m looking to collaborate on **Android and Web Development projects**
 
