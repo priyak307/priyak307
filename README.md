@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **priyak3020@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IaCDB7udb4ahkh-FzV3fXEMtI-RswmKB/view?usp=sharing](https://drive.google.com/file/d/1IaCDB7udb4ahkh-FzV3fXEMtI-RswmKB/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1IaCDB7udb4ahkh-FzV3fXEMtI-RswmKB/view?usp=sharing](https://drive.google.com/file/d/1RQTYXXlhg5k-VbHN121AJt2EaxyVCRws/view?usp=sharing)
 
 - ⚡ Fun fact **I can solve 🧩 a Rubik's cube in under 2 minutes! 🕒**
 
